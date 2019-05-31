@@ -1,5 +1,5 @@
 # Miscellaneous_LauraManrique
-Here are some of the results of my work! Enjoy, share and comment!
+Here are some of the results of my work! Contents are in Spanish and English. Enjoy and comment!
 
 In this folder you will find work related to:
 1. International treaties of Colombia
