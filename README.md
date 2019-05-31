@@ -4,5 +4,5 @@ Here are some of the results of my work! Contents are in Spanish and English. En
 In this folder you will find work related to:
 1. International treaties of Colombia
 2. Asian developmental model and considerations for the colombian case
-3. Overview of the situation at the border between Colombia and Panama
+3. Overview of the situation at the border between Colombia and Panama (Academic article)
 4. Preliminary results of ongoing work
